@@ -2,6 +2,5 @@
 
 Hey guys, welcome to my github page with me and the crew
 I am finally making a game with my crew
-Please play it when it is finished
 
-But as of March 20th, 2023 we have ran into a small problem. COPYRIGHTED FROM BLOOKET
+This github page is for some hacking, coding, and other things. But we just got a reminder NO hacking in game because we can officially see what you are doing. If anything glitches use hacks ONCE NOT MULTIPLE TIMES
